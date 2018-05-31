@@ -27,7 +27,10 @@ CREDITOS
 
 Jose Manuel López Lujan 
 
+Ingeniera Lorenza Illanes Diaz Rivera
+
 COAUTORA: Diana Karina Jasso Monge
+
 
 Bibliografías:
 
